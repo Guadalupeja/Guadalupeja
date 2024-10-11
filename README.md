@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Guadalupeja
+- 👋 Hi, I’m @Guadalupej Juárez Arias
 - 👀 I’m interested in web developer
 - 🌱 I’m currently learning new ways to do things
 
